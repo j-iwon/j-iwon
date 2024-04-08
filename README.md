@@ -1,3 +1,6 @@
+![KakaoTalk_20240322_160220003](https://github.com/j-iwon/j-iwon/assets/156397974/3518be18-292e-4f9e-8acc-80a9ea76dc4a)
+
+
 ### Hi there 👋
 
 <!--
